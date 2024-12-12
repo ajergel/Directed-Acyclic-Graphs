@@ -1,0 +1,1 @@
+This guide is freely available for anyone to use. However, if it is utilized in presentations, publications, or any context beyond personal study or reference, please ensure to credit the author appropriately. Andrew Jergel, MPH.
